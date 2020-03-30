@@ -8,4 +8,4 @@ Just a person trying to find his way.
 
 ### Contact me
 
-Send me a [message on Twitter](https://twitter.com/ryan_conger).
+For now, don't contact me.
